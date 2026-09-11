@@ -4,9 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 rich girl in the world
 ----------------------
 ![](https://komarev.com/ghpvc/?username=your-github-Nnanpol&color=green)
-<img src="[[[[https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNzRoZGJidzRhaDZhbHhyeXZ5
-bjQxbDl4eW5lcXJpamZ1aXhjdWhqeCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/
-M9gbBd9nbDrOTu1Mqx/giphy.gif]](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3dWxtcGt4YmR1OWdvYjc3ZG1qNjhhd3cyd21hdHMyZWI4MHM0bHBnaSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/lom7LBUoah9r2RZ0K3/giphy.gif)](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDdpZzdhajg0cDR1MTU1cTU4b2ptMWE0MXdrY2k2cG9naHUyOWFmZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/lom7LBUoah9r2RZ0K3/giphy.gif)" width="100" height="100" />
+<img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDdpZzdhajg0cDR1MTU1cTU4b2ptMWE0MXdrY2k2cG9naHUyOWFmZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/lom7LBUoah9r2RZ0K3/giphy.gif" width="100" height="100" />
 * 🌍  I'm based in UK
 * ✉️  You can contact me at [nanthaporn.s@ku.th](mailto:nanthaporn.s@ku.th)
 
